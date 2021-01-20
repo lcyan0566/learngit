@@ -1,4 +1,4 @@
 Git is a distributed version control system dana.
 Git is free software sodayo.
-My Stupid fatherhhhhh.
+My Stupid father.
 But I'm not.
